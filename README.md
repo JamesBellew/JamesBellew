@@ -17,4 +17,7 @@
 ## ⚡ A bit about me 
 Alwways looking to learn new tech stacks and developing technologies along with collaborating with others on big projects  
 
+## My website
+
+[ic_school_48px.pdf](https://github.com/JamesBellew/JamesBellew/files/6332394/ic_school_48px.pdf)
 
