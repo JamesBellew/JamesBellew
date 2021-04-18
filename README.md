@@ -18,6 +18,9 @@
 Alwways looking to learn new tech stacks and developing technologies along with collaborating with others on big projects  
 
 ## My website
+Comming soon
 
-[ic_school_48px.pdf](https://github.com/JamesBellew/JamesBellew/files/6332394/ic_school_48px.pdf)
+## My Education
+### 2012-2018 De La Salle Secondary School Dundalk
+### 2018-present Dundalk Institute of Technology
 
