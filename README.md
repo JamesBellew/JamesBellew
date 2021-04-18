@@ -17,7 +17,7 @@
 ## ⚡ A bit about me 
 Alwways looking to learn new tech stacks and developing technologies along with collaborating with others on big projects  
 
-## My website
+## My website :thought_balloon:
 Comming soon
 
 ## My Education :school_satchel:
