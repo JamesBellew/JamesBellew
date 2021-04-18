@@ -15,8 +15,6 @@
   ### Facebook: https://www.facebook.com/james.bellew.58/
   
 ## ⚡ A bit about me 
-
-
-:EMOJICODE:
+Alwways looking to learn new tech stacks and developing technologies along with collaborating with others on big projects  
 
 
