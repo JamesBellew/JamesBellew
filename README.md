@@ -17,3 +17,6 @@
 ## ⚡ A bit about me 
 
 
+![20210417_123802](https://user-images.githubusercontent.com/47107576/115163793-093c6b00-a0a3-11eb-9fd2-1f31010b5db8.jpg)
+
+
